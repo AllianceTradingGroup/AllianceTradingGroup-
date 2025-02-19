@@ -6,8 +6,8 @@ Alliance Trading Group is a British brokerage firm that began operations in 2014
 ## Alliance Trading Group Reviews: User Insights
 The company's headquarters is located in the United Kingdom, one of the world's key financial centers. Since its founding, numerous reviews about Alliance Trading Group have appeared online. These can be found on various web platforms, including:
 
-* Medium;
-* HackMD;
+* [Medium](https://medium.com/@eremenkosergej619/alliance-trading-group-reviews-what-trading-conditions-does-the-broker-offer-70e857d5d579);
+* [HackMD](https://hackmd.io/@AllianceTradingGroup/H14K-L79yg);
 * LinkedIN.
 
 In user comments, timely withdrawals, the absence of hidden fees, and a convenient trading platform are frequently highlighted.
